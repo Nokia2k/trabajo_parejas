@@ -1,2 +1,2 @@
-# Este esta en main por dios
+# Este esta en main por jesucristo
 
